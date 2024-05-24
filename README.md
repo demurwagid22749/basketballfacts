@@ -1,1 +1,1 @@
-John Stockton holds the NBA record for the most career assists, with 15,806 assists dished out during his tenure with the Utah Jazz.
+LeBron James, often compared to Jordan, has won four NBA championships and four regular-season MVP awards, showcasing his versatility and dominance on the court.
