@@ -1,1 +1,1 @@
-LeBron James, often compared to Jordan, has won four NBA championships and four regular-season MVP awards, showcasing his versatility and dominance on the court.
+The original rules of basketball, written by Naismith, included 13 basic rules, which have since evolved and expanded into the comprehensive rulebook used today.
