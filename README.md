@@ -1,1 +1,1 @@
-The Boston Celtics hold the record for the most NBA championships, with 17 titles won as of 2022, followed by the Los Angeles Lakers with 17 championships.
+The modern game of tennis evolved from "lawn tennis," which was first played in England in the late 19th century.
