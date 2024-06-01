@@ -1,1 +1,1 @@
-Kareem Abdul-Jabbar, known for his skyhook shot, is the NBA's all-time leading scorer, with 38,387 points scored over his 20-season career.
+Serena Williams holds the record for the most Grand Slam singles titles in the Open Era, with 23 titles won between 1999 and 2017.
