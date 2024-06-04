@@ -1,1 +1,1 @@
-The first public basketball game was played in Springfield, Massachusetts, where Naismith taught, and the sport quickly gained popularity across the United States and around the world.
+The Boston Celtics hold the record for the most NBA championships, with 17 titles won as of 2022, followed by the Los Angeles Lakers with 17 championships.
