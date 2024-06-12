@@ -1,1 +1,1 @@
-The 1992 United States men's basketball team, known as the "Dream Team," is widely considered the greatest basketball team ever assembled, winning the gold medal at the Barcelona Olympics with an average margin of victory of 43.8 points per game.
+LeBron James, often compared to Jordan, has won four NBA championships and four regular-season MVP awards, showcasing his versatility and dominance on the court.
