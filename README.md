@@ -1,1 +1,1 @@
-The NBA has a massive international following, with broadcasts reaching over 200 countries and territories and players from over 40 countries represented in the league.
+A regulation basketball game consists of four quarters, each lasting 12 minutes, with a 15-minute halftime break. Overtime periods are played if the score is tied at the end of regulation.
