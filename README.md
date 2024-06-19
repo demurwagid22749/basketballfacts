@@ -1,1 +1,1 @@
-Serena Williams holds the record for the most Grand Slam singles titles in the Open Era, with 23 titles won between 1999 and 2017.
+The FIBA Basketball World Cup, held every four years, is the premier international basketball tournament, featuring national teams from around the world competing for the championship title.
