@@ -1,1 +1,1 @@
-Hakeem Olajuwon is the only player in NBA history to win the NBA MVP, Defensive Player of the Year, and NBA Finals MVP awards in the same season (1993-1994).
+Michael Jordan, widely regarded as one of the greatest basketball players of all time, won six NBA championships with the Chicago Bulls and earned five regular-season MVP awards.
