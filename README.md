@@ -1,1 +1,1 @@
-Michael Jordan, widely regarded as one of the greatest basketball players of all time, won six NBA championships with the Chicago Bulls and earned five regular-season MVP awards.
+The Golden State Warriors set an NBA record for the most wins in a regular season with 73 wins and only 9 losses during the 2015-2016 season, surpassing the previous record of 72-10 set by the Chicago Bulls in 1995-1996.
