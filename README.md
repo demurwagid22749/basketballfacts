@@ -1,1 +1,1 @@
-Hakeem Olajuwon is the NBA's all-time leader in blocked shots, with 3,830 blocks recorded throughout his career with the Houston Rockets and Toronto Raptors.
+The Naismith Memorial Basketball Hall of Fame, located in Springfield, Massachusetts, honors players, coaches, referees, and other contributors to the sport of basketball.
