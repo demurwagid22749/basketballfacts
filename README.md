@@ -1,1 +1,1 @@
-The objective of the game is to score points by shooting the basketball through the opposing team's hoop, which is mounted 10 feet above the floor.
+The first public basketball game was played in Springfield, Massachusetts, where Naismith taught, and the sport quickly gained popularity across the United States and around the world.
