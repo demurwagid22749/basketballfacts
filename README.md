@@ -1,1 +1,1 @@
-Michael Jordan, widely regarded as one of the greatest basketball players of all time, won six NBA championships with the Chicago Bulls and earned five regular-season MVP awards.
+The NBA consists of 30 teams divided into two conferences, the Eastern Conference and the Western Conference, each containing three divisions.
