@@ -1,1 +1,1 @@
-Basketball was invented in December 1891 by Dr. James Naismith, a Canadian physical education instructor, as a way to keep his students active indoors during the winter months.
+John Stockton holds the NBA record for the most career assists, with 15,806 assists dished out during his tenure with the Utah Jazz.
