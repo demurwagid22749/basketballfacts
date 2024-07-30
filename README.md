@@ -1,1 +1,1 @@
-The National Basketball Association (NBA) was founded in 1946 as the Basketball Association of America (BAA) and merged with the National Basketball League (NBL) in 1949 to form the NBA.
+The first official game of basketball was played on December 21, 1891, with nine players on each team and a soccer ball thrown into peach baskets serving as goals.
