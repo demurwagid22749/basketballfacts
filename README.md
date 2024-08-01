@@ -1,1 +1,1 @@
-Hakeem Olajuwon is the NBA's all-time leader in blocked shots, with 3,830 blocks recorded throughout his career with the Houston Rockets and Toronto Raptors.
+Basketball was invented in December 1891 by Dr. James Naismith, a Canadian physical education instructor, as an indoor game to keep his students active during the winter months.
